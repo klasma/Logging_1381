@@ -1,0 +1,1 @@
+# Laholms kommun
